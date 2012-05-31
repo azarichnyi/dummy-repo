@@ -11,10 +11,4 @@ why doesn't it closes...??
 
 TEST
 
-COME ON!!!!!1111 close!!!
-
-Ohhhh that prob my bad.... and one more time!
-Crap
-WORK!!!
-
-SB-1450 222
+12345
